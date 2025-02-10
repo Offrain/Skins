@@ -4,6 +4,9 @@
 
 </details>
 
+# [Furina_rimerca](https://drive.google.com/file/d/1aFesXFZvDwKIhI49NkJTBQvmnNzyOmHX/view?usp=sharing)
+![screenshot1](https://i.imgur.com/MxanDFx.jpeg)
+
 # [Hutao_main_yel](https://drive.google.com/file/d/1DR27i7IEpAJxXKyZiBHG6-wmYgLIxs_L/view?usp=sharing)
 ![screenshot1](https://i.imgur.com/Wo5l7uU.jpeg)
 
