@@ -4,6 +4,15 @@
 
 </details>
 
+# [Furina](https://drive.google.com/file/d/13sXeGzpZLfuNwzRawy5-Fjm6OnqqjSVt/view?usp=sharing)
+![screenshot1](https://i.imgur.com/eUftoDp.jpeg)
+
+# [Furina_edit](https://drive.google.com/file/d/1fF9ttXECmBvwuFMrjzdMew1Vsexy6jEn/view?usp=sharing)
+![screenshot1](https://i.imgur.com/kyXud7S.jpeg)
+
+# [Furina_rimerca2](https://drive.google.com/file/d/1uuDuhtpINjxOJHEZ_3Kyxs1smJ7cT6O2/view?usp=sharing)
+![screenshot1](https://i.imgur.com/MxanDFx.jpeg)
+
 # [Hutao_main2](https://drive.google.com/file/d/1MpOXz2hl4IE50iohqWi1x2Dx4vi_Zgbc/view?usp=sharing)
 ![screenshot1](https://i.imgur.com/qUwc7ph.jpeg)
 
